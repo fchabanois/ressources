@@ -1,6 +1,6 @@
 ## Images
 
-- Les studios #Ghibli ont publié 400 images de leurs films sans restriction de droit http://ghibli.jp/info/013344/
+- Les studios Ghibli ont publié 400 images de leurs films sans restriction de droit http://ghibli.jp/info/013344/
 
 
 
